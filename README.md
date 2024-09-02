@@ -1,0 +1,1 @@
+These assets come from a game Called Pocket Crystal League and are being used for [this wiki.](https://pocket-crystal-league-wiki.notion.site/d916371dfed14109bc64867ef33c89d6?v=497b15d7d19c445684e2df333ebb8587)
